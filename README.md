@@ -8,4 +8,10 @@ meu nome é Mirele
 
 ### Voce entrar em contado comigo 📫
 
+
 00001113691529sp@al.educacao.sp.gov.br
+
+
+
+![](https://github.com/user-attachments/assets/93371aaf-0928-4828-8856-fd856685bde9)
+
